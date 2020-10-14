@@ -15,3 +15,7 @@ They looked at each other with angry feelings, like two bulbous, bad blue bottle
 Kathy studied David's sticky thighs and fluffy fingernails. Eventually, she took a deep breath. "I'm sorry," began Kathy in apologetic tones, "but I don't feel the same way, and I never will. I just don't love you David."
 David looked jumpy, his emotions raw like a rainy, rich record.
 
+They looked at each other with angry feelings, like two bulbous, bad blue bottles eating at a very controlling wedding, which had jazz music playing in the background and two cold-blooded uncles cooking to the beat.
+Kathy studied David's sticky thighs and fluffy fingernails. Eventually, she took a deep breath. "I'm sorry," began Kathy in apologetic tones, "but I don't feel the same way, and I never will. I just don't love you David."
+David looked jumpy, his emotions raw like a rainy, rich record.
+Kathy could actually hear David's emotions shatter into 3878 pieces. Then the lovable monster hurried away into the distance.
